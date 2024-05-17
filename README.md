@@ -1,7 +1,7 @@
-### Hi there 👋
+### Ana Julia dos Santos- 2B- Rob  otica
 
-<!--
-**aninha22022023/aninha22022023** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://github.com/aninha22022023/aninha22022023/assets/170127366/839a3cf3-4d1b-4730-9917-b626b55263eb)
+ha22022023/aninha22022023** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
